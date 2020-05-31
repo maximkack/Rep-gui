@@ -1,1 +1,1 @@
-Hi friend!
+Hi friend! from Kraken.
